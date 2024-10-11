@@ -5,4 +5,4 @@ Interested in Machine Learning and Cloud Computing.
 
 
 
-Other interests: Sports 🏈 🏀
+Other interests: Sports 🏈 🏀, Cars 🚗, Sports Betting 💸 📉 
